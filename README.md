@@ -1,2 +1,2 @@
 # ExmuslimMovementIndia
-The Exmuslim Movement India is a growing movement of individuals who were raised Muslim but have chosen to leave the religion.
+The Exmuslim Movement India is a growing movement of individuals who were raised Muslim but have chosen to leave the religion. Its primary objective is not to erase Muslim identity or spread hate, but to encourage an examination of Islam as it is written in its texts. The movement also serves as a support network for ex-Muslims who often face obstacles and threats for their decision.
